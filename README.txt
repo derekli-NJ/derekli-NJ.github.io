@@ -1,1 +1,1 @@
-Visit me at [www.li-derek.com] !!!
+Visit me at www.li-derek.com
